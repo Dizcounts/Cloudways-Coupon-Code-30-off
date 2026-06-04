@@ -1,4 +1,4 @@
-![Exclusive Cloudways discount](image.jpg "Exclusive Cloudways discount")
+![Exclusive Cloudways discount](image.png "Exclusive Cloudways discount")
 
 # Cloudways Coupon Code 2026 – Get Exclusive 30% Off Cloud Hosting
 
